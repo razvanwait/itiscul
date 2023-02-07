@@ -1,13 +1,16 @@
 # itiscul
 
-WEFIUNIVE
-amsdlkajdla
+asdasda
+weasdas
+adasda
+asdda
 -lista
--asadasda
--asda-sda
+-aaasdsa
+-asdasda
+-erererere
 
-#ASDA
+# AAOIJ
 
-#asdasda
+## kjdskjdskd
 
-###asdasda
+### tukianul
